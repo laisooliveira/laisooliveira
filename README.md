@@ -1,6 +1,6 @@
 # Hi 👋, I'm Lais
 
-### Front-end engineer with 3 years of experience.
+### Front-end engineer with 5 years of experience.
  
 ### Connect with me:
 
